@@ -1,16 +1,13 @@
-## Hi there 👋
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤ
+ㅤ
 
-<!--
-**souIfighter/souIfighter** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/sfsett.png" width="670" height="670" /></div>
 
-Here are some ideas to get you started:
+<div align="center">uhh im like a sett yume or something idk how this works</div>
+<div align="center">soul fighter sett is my little baby hes gettin it good tonight🤤🤤🤤</div>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+ <a href= "https://set.atabook.org/"> ata</a>ㅤㅤ◠ㅤㅤ<a href= "https://pronouns.cc/@crocbug/">prns.cc</a>ㅤㅤ◠ㅤㅤ<a href= "https://rentry.co/filmred/">rentry</a> 
+</p>
