@@ -4,7 +4,7 @@
 
 <div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/TINTEDsfsett.png" width="670" height="670" /></div>
 
-<div align="center">uhh im like a sett yume or something idk how this works</div>
+<div align="center">'`⠀ain't no motherfucker in this world can do it like me ~⠀`'</div>
 <div align="center">soul fighter sett is my little baby ♡</div>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
