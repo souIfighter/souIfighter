@@ -2,7 +2,7 @@
 ㅤ
 ㅤ
 
-<div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-05-01_175636701.png" /></div>
+<div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-05-01_175709166.png" /></div>
 
 <div align="center">im not super into yumeshipping culture i fear</div>
 <div align="center">soul fighter sett is my little baby ♡</div>
